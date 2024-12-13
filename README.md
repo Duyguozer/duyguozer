@@ -1,2 +1,3 @@
-![Gün Batımı Sahili](https://media.giphy.com/media/l3q2K5jtixt0jrynu/giphy.gif)
+![Gün Batımı](https://media.giphy.com/media/XhPBcJj8Z8vdbxX2oD/giphy.gif)
+
 
